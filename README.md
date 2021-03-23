@@ -1,4 +1,4 @@
 ### Hi there 👋
 
 
-- 🔭 I’m currently working on work
+- There is a way to be good again
